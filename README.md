@@ -1,1 +1,1 @@
-# 个人总结用的技术博客，每天进步一点。
+# good good study，day day up!
